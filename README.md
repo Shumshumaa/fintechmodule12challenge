@@ -1,1 +1,0 @@
-# fintechmodule12challenge
